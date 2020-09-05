@@ -1,3 +1,3 @@
 # testing
 im testing
-plz im testing so dont thing this is somthing to do
+im going to add my game plz your going to have to extract this file if its in a .ZIP
